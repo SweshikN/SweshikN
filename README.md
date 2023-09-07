@@ -1,5 +1,5 @@
 ### Hi there 👋
-
+a talented high school senior with a passion for the written word. As the editor of his school’s newspaper, he fearlessly delves into the latest stories and issues. But that’s not all – John is also an avid reader and writer, always eager to explore new literary worlds and discover fresh perspectives.
 <!--
 **SweshikN/SweshikN** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
